@@ -1,4 +1,5 @@
 # Hello there 👋, I'm KOBUKOVU
+My real full name is Khâu Vân Nam and I am a Software Dev. I'm a new but still endeavoring day to day to reach my dream.
 
 ### Software Engineer
 - 🔭 I’m currently working on: Intern Software Engineer
