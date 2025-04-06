@@ -35,8 +35,8 @@ I firmly believe that innovation is born from collaboration and relentless exper
 
 I'm always open to discussing fresh ideas, collaborating on exciting projects, or exploring new opportunities. Feel free to reach out via:
 
-- **LinkedIn**: [[Your LinkedIn URL]](https://www.linkedin.com/in/khauvannam)
-- **Facebook**: [[Your Twitter Handle]](https://www.facebook.com/vannam.khau)
+- **LinkedIn**: [[Khâu Vân Nam]](https://www.linkedin.com/in/khauvannam)
+- **Facebook**: [[Khâu Vân Nam]](https://www.facebook.com/vannam.khau)
 - **Email**: nkhauvan@gmail.com
 
 Thank you for visiting my profile. Let's build the future of technology together!
